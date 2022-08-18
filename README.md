@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @gbr1el
+- 👀 I’m interested in programador web
+- 🌱 I’m currently learning  CSS
+- 💞️ I’m looking to collaborate on para aumentar ainda mais minhas esperiencia  na web
+- 📫 Você  pode me contatar pelo meu  instagram, @gbriel.0.
+- ou pelo meu Email, gabrieloliveiraaraujo16@gmail.com
